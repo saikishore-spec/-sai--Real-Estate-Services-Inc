@@ -99,8 +99,9 @@ learning objectives
 
 By focusing on these areas, you can significantly contribute to the growth and success of your brokerage, while also building a successful career as a realtor.
 
-####short points 
-# Realtor's Guide to Supporting Brokerage Success
+## short cut tips -Brief out view 
+
+
 
 ## Lead Generation and Sales
 
@@ -172,4 +173,4 @@ By focusing on these areas, you can significantly contribute to the growth and s
    - Maintain organized records of all transactions, communications, and documents.
    - Ensure that all records are accessible for future reference and audits.
 
-By focusing on these areas, you can significantly contribute to the growth and success of your brokerage, while also building a successful career for yourself as a realtor.
+By focusing on these areas, I can significantly contribute to the growth and success of your brokerage, while also building a successful career for Myself as a realtor.
