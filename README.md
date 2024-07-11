@@ -2,9 +2,9 @@
 learning objectives 
 ![image](https://github.com/user-attachments/assets/723b5897-259f-469c-8129-ad6f90928102)
 
-# Realtor's Guide to Supporting Brokerage Success
+#  Supporting for Success
 
-As a realtor, you play a crucial role in supporting and driving the success of a brokerage. Here are 15 ways you can help a brokerage, divided into relevant categories:
+
 
 ## Lead Generation and Sales
 
